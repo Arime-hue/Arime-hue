@@ -1,2 +1,2 @@
 I’m @Arime-hue and ...
-I love learning, especially when it pays off! 🤧
+I love learning, especially when it pays off! 
